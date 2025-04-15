@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning web development 
 - 💞️ I’m looking to collaborate on content writing 
 - 📫 How to reach me mahyorwah111@gmail.com
-- 😄 Pronouns:Male
+- 😄 Pronouns:He/ him
 - ⚡ Fun fact: I'm not creepy please 
 
 <!---
